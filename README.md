@@ -42,4 +42,6 @@ This guide is purely educational. We do not condone illegal activities. Comply w
 
 
 
-Update:  13 August
+
+
+Update:  23 August 2025
